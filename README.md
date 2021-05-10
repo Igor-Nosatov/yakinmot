@@ -1,6 +1,3 @@
 # yakinmot
 
-asdgergaegawg
-awegawgfeeeeee
-
-dffawfawffvawf
+pppppppppppppppppp
